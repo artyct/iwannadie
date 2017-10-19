@@ -1,0 +1,2 @@
+# iwannadie
+kill myself
